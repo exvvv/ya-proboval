@@ -1,1 +1,12 @@
-# ya-proboval
+# ya-proboval![task 1](https://github.com/user-attachments/assets/492dd128-1ee9-4d72-8e6e-6ec0b58ade2c)
+
+![task 2](https://github.com/user-attachments/assets/a5caa0f5-3294-45e9-b6e4-359081db6ee6)
+![task3](https://github.com/user-attachments/assets/8f1e17b6-2f51-4c7a-bed6-bf25ad1c2040)
+![task 4](https://github.com/user-attachments/assets/68a48b47-3ae0-4b17-beb0-3f98e07ec0cb)
+![task 5](https://github.com/user-attachments/assets/aea7bb3d-26a8-48b3-8210-196d94c9ba46)
+![task 6](https://github.com/user-attachments/assets/28ed2cb4-cd8c-4d6d-9c0e-44c6bbd91e73)
+![task 7](https://github.com/user-attachments/assets/0183f018-59a3-4687-b097-87444fde2a9f)
+![task 8](https://github.com/user-attachments/assets/c0455a8b-dfe8-43d8-b913-8942edadc282)
+![task 9](https://github.com/user-attachments/assets/06f73d16-a935-4c3e-91a7-104662a2880d)
+![task 10](https://github.com/user-attachments/assets/6a5035df-e434-48be-b437-6b46c8c5dcc4)
+[).txt](https://github.com/user-attachments/files/17624812/default.txt)
