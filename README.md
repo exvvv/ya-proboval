@@ -1,4 +1,4 @@
-# ya-proboval![task 1](https://github.com/user-attachments/assets/492dd128-1ee9-4d72-8e6e-6ec0b58ade2c)
+[))).txt](https://github.com/user-attachments/files/17653421/default.txt)# ya-proboval![task 1](https://github.com/user-attachments/assets/492dd128-1ee9-4d72-8e6e-6ec0b58ade2c)
 
 ![task 2](https://github.com/user-attachments/assets/a5caa0f5-3294-45e9-b6e4-359081db6ee6)
 ![task3](https://github.com/user-attachments/assets/8f1e17b6-2f51-4c7a-bed6-bf25ad1c2040)
@@ -23,3 +23,8 @@
 ![if 5](https://github.com/user-attachments/assets/68e15a8f-ef32-4465-9cdc-f2f2c46c5063)
 ![if 6](https://github.com/user-attachments/assets/0be6ec1c-10cd-44ef-9742-efcf005b5159)
 [)).txt](https://github.com/user-attachments/files/17653206/default.txt)
+
+
+![dop 1](https://github.com/user-attachments/assets/5d551b0b-ae4d-4419-8a9f-9433d47deb14)
+![dop 3](https://github.com/user-attachments/assets/a226b1dd-106c-4d84-b3b7-5c7e5fc951e5)
+[Uploading ))).txt…]()
