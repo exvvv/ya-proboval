@@ -10,3 +10,16 @@
 ![task 9](https://github.com/user-attachments/assets/06f73d16-a935-4c3e-91a7-104662a2880d)
 ![task 10](https://github.com/user-attachments/assets/6a5035df-e434-48be-b437-6b46c8c5dcc4)
 [).txt](https://github.com/user-attachments/files/17624812/default.txt)
+
+
+![if 7](https://github.com/user-attachments/assets/8069277f-721b-4f64-92e4-ebf0cd50bff4)
+![if 8](https://github.com/user-attachments/assets/d7700135-3138-4fc3-b96a-3666e42e11df)
+![if 9](https://github.com/user-attachments/assets/1747ca56-5937-4960-ac8b-dc06d0c2af82)
+![if 10](https://github.com/user-attachments/assets/1c16f840-9738-4027-a864-f318fa497cc5)
+![if 1](https://github.com/user-attachments/assets/e487bca6-3e4a-418b-891f-74c1c475efe8)
+![if2](https://github.com/user-attachments/assets/a9ec004d-5805-4b87-83f4-2cb60ff409a5)
+![if 3](https://github.com/user-attachments/assets/5b3df249-0fc0-4a10-a4b6-ff140972084f)
+![if 4](https://github.com/user-attachments/assets/1198029e-d20e-4e85-a577-bc33b9f25201)
+![if 5](https://github.com/user-attachments/assets/68e15a8f-ef32-4465-9cdc-f2f2c46c5063)
+![if 6](https://github.com/user-attachments/assets/0be6ec1c-10cd-44ef-9742-efcf005b5159)
+[)).txt](https://github.com/user-attachments/files/17653206/default.txt)
